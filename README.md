@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @GabrielTwum
-- 👀 I’m interested in ...type shi
 - 🌱 I’m currently learning ...prgms
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...ig @watashi_wa_nana
+- 📫 How to reach me ...ig @_justgabby
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...im a weeb
 
